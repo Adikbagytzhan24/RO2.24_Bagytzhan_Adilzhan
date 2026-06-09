@@ -1,0 +1,1 @@
+# RO2.24_Bagytzhan_Adilzhan
